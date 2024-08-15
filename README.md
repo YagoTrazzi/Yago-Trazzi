@@ -6,6 +6,7 @@ Meu nome é Yago Trazzi Machado
  - Estou trabalhando de garçom em um salão de festas;
 - Atualmente estou tentando participar da Olímpiada de astronomia (OBA)
 - Espanhol básico
+- MuayThai
 ### Meus contatos
 
 - Email escolar: 00001113101003sp@al.educacao.sp.gov.br
